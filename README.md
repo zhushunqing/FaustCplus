@@ -8,4 +8,6 @@ Flash Avatar Upload Sina Twitter Crack+
 
 演示Demo地址: http://flashman.com.cn/Flash/FaustCplus/branches/common/
 
+.FLA源文件请用Adobe Flash CS5或以上版本打开
+
 版权属于新浪微博原作者(暂未明)
