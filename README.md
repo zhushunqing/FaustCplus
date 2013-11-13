@@ -7,7 +7,7 @@ Flash Avatar Upload Sina Twitter Crack+
 
 在来源不明网络下载破解版基础上增加了底图拖拽Drag、缩放Zoom in/out、亮度Bright对比度Contrast饱合度Saturation调整、保存源图、支持摄像头开启等功能。可根据自身产品需要定制界面。
 
-演示Demo地址: http://flashman.com.cn/Flash/FaustCplus/common/
+演示Demo地址: http://flashman.com.cn:81/Flash/FaustCplus/common/
 
 .FLA源文件请用Adobe Flash CS5或以上版本打开
 
